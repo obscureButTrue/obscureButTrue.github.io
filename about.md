@@ -4,12 +4,4 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
-
-### More Information
-
-A place to include any other types of information that you'd like to include about yourself.
-
-### Contact me
-
-[email@domain.com](mailto:email@domain.com)
+Just some obscure mini stories and fake paper abstracts. Please let me know if you find glaring logic holes or omissions at mediumendian+obscure AT gmail.com
