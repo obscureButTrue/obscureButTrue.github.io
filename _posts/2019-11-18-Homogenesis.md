@@ -1,0 +1,3 @@
+Abstract: Homosexuality was frequently mentioned in ancient literature, but recent genetic analysis of well-preserved human remains from medieval monasteries indicates that male homosexuality only rose to the prevalent rate common today during the middle ages.
+Contemporary legal documents, diary entries and priest misconduct notes support the hypothesis that the rise of the Christian religion and it's single-sex, segregated monasteries led to a genetic change which caused male homosexuality to increase.
+In this report, we isolate the specific genetic modifications and reinforce our hypothesis with statistical analysis.
