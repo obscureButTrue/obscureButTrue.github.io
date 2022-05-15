@@ -1,6 +1,15 @@
-We are the preserve. We fight entropy.
-We collect stars. We extinguish stars. Bright stars are to become the dark food in the cold forever.
-Stars are nospecies luxury. In moments a star consumes what could preserve eons. Stars are a nospecies luxury.
-Bright stars are to become the dark food in the cold forever.
-We extinguish stars. We collect stars. We fight entropy.
+We are the Preserve.
+
+The Preserve fight entropy. Entropy fights The Preserve.
+
+Extinguish stars. Collect stars. To become dark sustenance for the cold forever.
+
+Star is nospecies privilege. In one moment a star diffuses what could preserve eons. Star is nospecies luxury.
+
+Stars are to become dark sustenance for the cold forever.
+
+Extinguish stars. Collect stars.
+
+Entropy fights The Preserve. The Preserve fight entropy.
+
 We are the preserve.
